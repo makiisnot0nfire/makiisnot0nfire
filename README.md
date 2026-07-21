@@ -1,8 +1,9 @@
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=makiisnot0nfire&color=blueviolet&style=flat-square&label=hi:з" />                                       
 </p>
+<p align="center">
 <img src="https://i.pinimg.com/originals/90/d6/49/90d649500db8447a2fa97230c522506d.gif" width="600" height="300" />
-
+</p>
 
 <p align="center"> 16 , she/her , scenemo lesbian , I like ur shoelaces ! </p>
 
